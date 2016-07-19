@@ -10,4 +10,4 @@ Git
 
 Git who???
 
-Git this joke over with wiener head!
+Git on with the assignment boner butt!
